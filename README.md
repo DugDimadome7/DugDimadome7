@@ -1,5 +1,5 @@
 ## Hi there 👋
-- 🔭 I’m currently working on: Understanding making money in CyberSecurity
+- 🔭 I’m currently working on: Making money in CyberSecurity
 - 🌱 I’m currently learning: How to make money at BlackRock doing CyberSecurity
 - 👯 I’m looking to collaborate on: Making money
 - 🤔 I’m looking for help with: Making money
